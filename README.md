@@ -1,0 +1,2 @@
+# premium-warp-paint-001-warp-painting-ikat-technique
+You're losing track of your warp painting and ikat experiments—colors, techniques, timing all scattered across notebooks and phone photos. The Warp Painting &amp; Ikat Technique Log solves this by giving you a centralized, searchable system to document every dye bath, resist pattern, and breakthrough moment.  This Notion template transforms chaotic tex
